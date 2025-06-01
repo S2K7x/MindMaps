@@ -1,2 +1,2 @@
 # MindMaps
-All my minima's
+All my minmaps
